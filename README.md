@@ -1,1 +1,1 @@
-https://github.com/yureshkav/queen-x-eror
+https://github.com/yureshofficial/Uploads
